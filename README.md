@@ -1,1 +1,1 @@
-https://github.com/ssshmebro4ka/onotebenado.git
+https://github.com/ssshmebro4ka/onotebenado
